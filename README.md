@@ -81,3 +81,47 @@ Smacznego! 🥞👩‍🍳
 (5) Placki | Kwestia Smaku. https://www.kwestiasmaku.com/przepisy/placki.
 
 
+
+
+przepis na jajecznice:
+Oczywiście! Oto kilka przepisów na pyszną **jajecznicę**, którą możesz przygotować na śniadanie lub jako szybki posiłek:
+
+1. **Jajecznica na maśle**:
+    - Na patelni rozgrzej łyżkę masła.
+    - Gdy masło stanie się płynne, wbij bezpośrednio trzy jajka.
+    - Delikatnie i bardzo wolno mieszaj.
+    - Lekko posól.
+    - Gdy jajka zaczną się ścinać, dolej 2-3 łyżki mleka lub śmietanki.
+    - Smaż jeszcze przez chwilę.
+    - Przekładaj na talerz i gotowe! 🍳
+    - [Przepis krok po kroku](https://www.olgasmile.com/jak-zrobic-jajecznice.html)
+
+2. **Jajecznica z dodatkami**:
+    - Na patelni rozgrzej masło i podsmaż pokrojoną w kostkę cebulę.
+    - Wbij jajka do miseczki i dopraw je pieprzem i solą.
+    - Całość wlej na patelnię i dobrze wymieszaj.
+    - Smaż przez chwilę, aż białko jajka się ścięło.
+    - Gotową jajecznicę posyp szczypiorkiem.
+    - [Więcej szczegółów](https://fajnegotowanie.pl/przepisy/jajecznica/)
+
+3. **Jajecznica po francusku**:
+    - Idealna na śniadanie!
+    - Wbij jajka do miseczki i mieszaj, aż uzyskasz jednolitą emulsję.
+    - Na patelni rozgrzej masło.
+    - Wlej jajka na patelnię i smaż, aż uzyskasz gładką konsystencję.
+    - [Przepis na FajneGotowanie.pl](https://kuchnialidla.pl/jajecznica-na-3-sposoby)
+
+4. **Jajecznica z boczkiem i szczypiorkiem**:
+    - Pyszne śniadanie lub szybki posiłek.
+    - Prosty i szybki przepis.
+    - [Więcej szczegółów](https://aniagotuje.pl/przepis/jajecznica)
+
+Smacznego! 🥚🍽️
+
+Źródło: Konwersacja za pomocą usługi Bing, 12.05.2024
+(1) Jak zrobić jajecznicę krok po kroku - 5 prostych przepisów na smaczną .... https://aniaradzi.pl/porady/jak-zrobic-jajecznice-krok-po-kroku-5-prostych-przepisow-na-smaczna-jajecznice/.
+(2) Jak zrobić jajecznicę przepis Olga Smile. https://www.olgasmile.com/jak-zrobic-jajecznice.html.
+(3) Jajecznica | przepis na FajneGotowanie.pl. https://fajnegotowanie.pl/przepisy/jajecznica/.
+(4) Jajecznica na 3 sposoby - przepis • Kuchnia Lidla. https://kuchnialidla.pl/jajecznica-na-3-sposoby.
+(5) Jajecznica | AniaGotuje.pl. https://aniagotuje.pl/przepis/jajecznica.
+(6) Getty Images. https://www.gettyimages.com/detail/photo/tasty-scrambled-eggs-royalty-free-image/919646000.
